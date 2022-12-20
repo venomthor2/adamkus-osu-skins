@@ -19,3 +19,17 @@ venom.#7999
 # [kantaluu](https://drive.google.com/file/d/11tlRdPabJw-mz95PoWqfHj91yJy6n61O/view?usp=sharing)
 ![](https://camo.githubusercontent.com/53418b6ab2389ad08fcf021a3bfb17ba730d447872dc4c25559aee5163dfc18e/68747470733a2f2f692e696d6775722e636f6d2f78344c436866352e6a7067)
 
+# [aetrnaMikoto](https://mega.nz/file/5QoijSoa#nR2PMY0rrsIHoug0puMQ52fRtU2ezGRnlWNRoCd5144) 
+![](https://user-images.githubusercontent.com/86570889/123661420-0b017800-d824-11eb-8051-08275447fd73.jpg)
+
+# [1.0 blue](https://joofixd.s-ul.eu/Idc2Mdek)
+![](https://osu.ppy.sh/ss/15821083/950a)
+
+# [vaxei dt](https://joofixd.s-ul.eu/ouJZqGd1)
+![](https://osu.ppy.sh/ss/13421907/707a)
+
+# [aristia aireu](https://b.catgirlsare.sexy/6GXzDQzg.osk)
+![](https://osu.ppy.sh/ss/16178093/c243)
+
+# [rafis but sz](https://drive.google.com/file/d/1merhrh2MPn2rd-4dQQFpLyRB8l_jYv6K/view)
+screenshot soon
