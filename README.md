@@ -33,3 +33,9 @@ venom.#7999
 
 # [rafis but sz](https://drive.google.com/file/d/1merhrh2MPn2rd-4dQQFpLyRB8l_jYv6K/view)
 screenshot soon
+
+# [rafis bocchi remake kinda](https://venomthor2.s-ul.eu/ta4rWYFa)
+![](https://osu.gatari.pw/ss/PYO8DYKB.jpg)
+
+# [natori adamqs mix](https://venomthor2.s-ul.eu/BFPyvleO)
+![](https://osu.gatari.pw/ss/PYO8DYKB.jpg)
