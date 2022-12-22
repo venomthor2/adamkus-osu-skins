@@ -3,6 +3,8 @@ adamkus / my angel aosora / bocchi the rock osu skins
 my discord in case you want to contact me about these skins (or if you are adamkus and wanna contribute)
 venom.#7999
 
+i dont use 2x elements btw so if some skins look broken its because elements arent in 2x 
+
 
 # [rafis edit](https://venomthor2.s-ul.eu/IsJfyuui)
 ![](https://i.imgur.com/YYJihL2.jpg)
