@@ -38,4 +38,4 @@ screenshot soon
 ![](https://osu.gatari.pw/ss/PYO8DYKB.jpg)
 
 # [natori adamqs mix](https://venomthor2.s-ul.eu/BFPyvleO)
-![](https://osu.gatari.pw/ss/PYO8DYKB.jpg)
+![](https://osu.gatari.pw/ss/25S64OT7.jpg)
