@@ -48,3 +48,5 @@ i dont use 2x elements btw so if some skins look broken its because elements are
 # [adamqs](https://venomthor2.s-ul.eu/CREiExJ4)
 ![](https://i.imgur.com/zLw9E4h.jpg)
 
+# [Skill](https://skill.s-ul.eu/7jdp5tnT)
+![](https://osuskins.net/screenshots/W51qTJO.jpg)
