@@ -1,5 +1,5 @@
 # adamkus-osu-skins
-adamkus / my angel aosora / bocchi the rock osu skins 
+adamkus / my angel aosora / bocchi the rock / morgn (yes he changed his name to that) osu skins 
 my discord in case you want to contact me about these skins (or if you are adamkus and wanna contribute)
 venom.#7999
 
