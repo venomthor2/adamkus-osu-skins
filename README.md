@@ -52,4 +52,4 @@ i dont use 2x elements btw so if some skins look broken its because elements are
 ![](https://osuskins.net/screenshots/W51qTJO.jpg)
 
 # [supposed (redacted) edit he once used](https://venomthor2.s-ul.eu/5mYsOuZo)
-cant screenshot 
+
