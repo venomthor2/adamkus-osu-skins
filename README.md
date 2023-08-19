@@ -52,7 +52,8 @@ i dont use 2x elements btw so if some skins look broken its because elements are
 ![](https://osuskins.net/screenshots/W51qTJO.jpg)
 
 # [maika v2](https://fuko.s-ul.eu/YKVPYhpG)
-![](https://imgur.com/a/3rGzfgc)
+![](https://i.imgur.com/N1WNX5o.jpg)
+
 i will update when i find the back button or know more elements to remake also shoutouts to alexkito for helping out
 
 # [(redacted) edit he once used](https://venomthor2.s-ul.eu/5mYsOuZo)
