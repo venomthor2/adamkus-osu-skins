@@ -1,9 +1,8 @@
 # adamkus-osu-skins
-adamkus / my angel aosora / bocchi the rock / morgn (yes he changed his name to that) osu skins 
-my discord in case you want to contact me about these skins (or if you are adamkus and wanna contribute)
-venom.#7999
+adamkus / my angel aosora / bocchi the rock / morgn (yes he changed his name to that) / Legendre osu skins 
+my discord in case you want to contact me about these skins (or if you are insert  and wanna contribute): venomthor2
 
-i dont use 2x elements btw so if some skins look broken its because elements arent in 2x 
+i dont use 2x elements btw so if some skins look broken its because elements arent in 2x (2024 update: i do use 2x elements now but my skins arent updated to do so :p)
 
 # [now featured on cpol yippie](https://skins.osuck.net/skins/3299?v=2)
 ![](https://files.osuck.link/images/skins/b254da31f8427c8a578bf182a3d36a46.webp)
