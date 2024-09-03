@@ -5,6 +5,8 @@ venom.#7999
 
 i dont use 2x elements btw so if some skins look broken its because elements arent in 2x 
 
+# [now featured on cpol yippie](https://skins.osuck.net/skins/3299?v=2)
+![](https://files.osuck.link/images/skins/b254da31f8427c8a578bf182a3d36a46.webp)
 
 # [rafis edit](https://venomthor2.s-ul.eu/IsJfyuui)
 ![](https://i.imgur.com/YYJihL2.jpg)
