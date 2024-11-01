@@ -1,6 +1,6 @@
 # adamkus-osu-skins
 adamkus / my angel aosora / bocchi the rock / morgn (yes he changed his name to that) / Legendre osu skins 
-my discord in case you want to contact me about these skins (or if you are insert  and wanna contribute): venomthor2
+my discord in case you want to contact me about these skins (or if you are insert  and wanna contribute): venveni_
 
 i dont use 2x elements btw so if some skins look broken its because elements arent in 2x (2024 update: i do use 2x elements now but my skins arent updated to do so :p)
 
